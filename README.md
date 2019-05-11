@@ -40,20 +40,21 @@ Invariably **when eating  legumes,  humans  get gassy,  an  indication  that  th
 
 ## Starches and digestion
 
-Concentrated starchy foods can cause a great deal of trouble in the colon and can also be dangerous for the heart. The digestion of such starches in excessive quantities causes the creation of abnormal amounts of carbon which becomes carbonic acid gas. To avoid this danger we need to reduce our consumption of starches to a minimum or, better still, avoid them.
+**Concentrated starchy foods can cause a great deal of trouble in the colon and can also be dangerous for the heart. The digestion of such starches in excessive quantities causes the creation of abnormal amounts of carbon which becomes carbonic acid gas. To avoid this danger we need to reduce our consumption of starches to a minimum or, better still, avoid them**.
 
 Devitalized starches and sugar are both mucus culprits and when removed from the diet the beneficial results are perceptive.
 
 To fully digest starchy foods - grains, roots and tubers, and legumes - animal must produce large quantities of starch-digesting enzymes (amylases). Granivores, root grubbers and legume eaters all secrete sufficient amylase to digest large quantities of starch. 
 
-In contrast, the human body produces salivary amylase (also  called  ptyalin) of extremely limited strength and in relatively low amounts, sufficient only to break down small amounts of starch, such as would be found in fruit that is not fully ripened.  The body also produces small quantities of pancreatic amylase for somewhat limited starch digestion in the intestines.
+In contrast, **the human body produces salivary amylase (also  called  ptyalin) of extremely limited strength and in relatively low amounts, sufficient only to break down small amounts of starch**, such as would be found in fruit that is not fully ripened.  **The body also produces small quantities of pancreatic amylase for somewhat limited starch digestion in the intestines**.
 
 Because cooked grains create a condition known as acid toxemia, people who adhere to starch/grain-based diets eventually fall victim to cancer, arthritis,  chronic fatigue, hypothyroidism, and a host of other health challenges. 
 
-Even  if we  can physically  chew  and  swallow  starchy  carbohydrates,  they  are very difficult   for  our  bodies   to   digest.   This   is   true   whether   they   are   eaten   raw,   soaked,   cooked,   processed,  or  refined.  We  do  not  have  the  digestive  enzymes  to  break  down  the  oligosaccharides  in  beans,  nor  the  polysaccharides  (cellulose  and  other  fibers)  in  grains  and  starchy  vegetables,  a  sure  sign  that they  are  not designed for  human  consumption.
-Biochemistry  tells  us  exactly  which  foods  we  can  and  cannot  digest,  and  therefore  what  foods we  should  eat.  
+Even  if we  can physically  chew  and  swallow  **starchy  carbohydrates,  they  are very difficult   for  our  bodies   to   digest**.   This   is   true   whether   they   are   eaten   raw,   soaked,   cooked,   processed,  or  refined. **We  do  not  have  the  digestive  enzymes  to  break  down  the  oligosaccharides  in  beans,  nor  the  polysaccharides  (cellulose  and  other  fibers)  in  grains  and  starchy  vegetables,  a  sure  sign  that they  are  not designed for  human  consumption**.
 
- In  all  cases,  however,  grains,  starchy  tubers,   and  legumes  create  nutritional,  digestive,  and  health  problems  for  those  who  eat  them.  Even  when  soaked  and  raw,  grains  are  acid  forming  in  a  body  that needs  to  be  slightly  alkaline. 
+**Biochemistry  tells  us  exactly  which  foods  we  can  and  cannot  digest,  and  therefore  what  foods we  should  eat**.  
+
+In  all  cases,  however,  **grains,  starchy  tubers,   and  legumes  create  nutritional,  digestive,  and  health  problems  for  those  who  eat  them.  Even  when  soaked  and  raw,  grains  are  acid  forming  in  a  body  that needs  to  be  slightly  alkaline**. 
  
  
 ###### Bananas
