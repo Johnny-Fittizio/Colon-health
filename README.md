@@ -1,7 +1,7 @@
 # Starches
 
 
-### What is starch
+## What is starch
 
 The word "starch" is from a Germanic root with the meanings "_strong, stiff, strengthen, stiffen_". Modern German _Stärke_ (strength) is related. The Greek term for starch, "_amylon_" (_ἄμυλον_), is also related. 
 
@@ -9,11 +9,11 @@ Starch or amylum is a polymeric carbohydrate consisting of a large number of glu
 This polysaccharide is produced by most green plants as energy storage. It is the most common carbohydrate in human diets and is contained in large amounts in staple foods like potatoes, wheat, maize (corn), rice, and cassava.
 
 
-### Starch food
+## Starch food
 
 Starches  can  be  divided  into  three  general  categories:  grains  (grass  seeds),  roots  and  tubers,  and  legumes. 
 
-##### Breads and Grains
+#### Breads and Grains
 
 Foods in this group include pasta, breads, popcorn, crackers, tortillas, cereals, rice, oatmeal, barley, millet and other grains. 
 
@@ -23,13 +23,13 @@ Of course,  in nature we would  all reject grass  seeds  as  foods.  First,  the
 
 Heavy on  starches,  grass  seeds  such  as  wheat berries  would  gag us  if  we  attempted  to  eat  the  equivalent  of a  spoonful  or  two  (assuming  we  could  gather  them,  and remembering  that  they  would  have  their husks intact,  as  we  would have to  eat them  in nature)  Further,  eating  a tablespoon  of raw  flour  made  from  the  seeds  of any  cereal  grain  would  also produce  a gag response because  it  is  so  dry.  Thus,  even  though  most of the human race presently  consumes  grains  and  starches,  we  can reject them  as  natural human  fare.  The  fact that grass  seeds neither  attract,  tantalize, nor arouse us  in their raw natural state  should  amply  indicate  to you  that we were  not granivores  in  nature  before  we  mastered fire.
 
-##### Starchy Vegetables
+#### Starchy Vegetables
 
 Starchy vegetables include peas, corn, potatoes, cassava, taro, water chestnuts, plantains, green bananas and lima beans.
 
 Animals  that  grub  for  roots  and  rubers  are  anatomically  designed  for  the  task:  they  have  snouts;  humans  do  not.  Without  tools,  humans  are  very  poor  diggers.  Further,  they  have  no  motivation  to  dig,  for  there  are  no  foods  below  ground  that,  in  their  natural  state,  please  the  palate,  and  very  few  exist  that  our  digestive  systems   can   even   handle. 
 
-##### Beans and Other Legumes
+#### Beans and Other Legumes
 
 Beans and other legumes have the distinction of counting as both starchy foods and protein foods. These include lentils, kidney beans, black-eyed peas, chickpeas, black beans, white beans, pinto beans and any other types of dried beans.
 
@@ -38,7 +38,7 @@ Very   few   creatures   other   than   birds   and   pigs   readily   consume  
 Invariably when eating  legumes,  humans  get gassy,  an  indication  that  their digestive processes  have  been  compromised. 
 
 
-### Starches and colon
+## Starches and digestion
 
 Concentrated starchy foods can cause a great deal of trouble in the colon and can also be dangerous for the heart. The digestion of such starches in excessive quantities causes the creation of abnormal amounts of carbon which becomes carbonic acid gas. To avoid this danger we need to reduce our consumption of starches to a minimum or, better still, avoid them.
 
