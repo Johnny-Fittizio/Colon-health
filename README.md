@@ -13,7 +13,7 @@ This **polysaccharide** is produced by most green plants as energy storage. It i
 
 Starches  can  be  divided  into  **three  general  categories:  grains  (grass  seeds),  roots  and  tubers,  and  legumes**. 
 
-#### Breads and Grains
+### Breads and Grains
 
 Foods in this group include pasta, breads, popcorn, crackers, tortillas, cereals, rice, oatmeal, barley, millet and other grains. 
 
@@ -23,13 +23,13 @@ Of course,  in nature we would  all reject grass  seeds  as  foods.  First,  the
 
 Heavy on  starches,  grass  seeds  such  as  wheat berries  would  gag us  if  we  attempted  to  eat  the  equivalent  of a  spoonful  or  two  (assuming  we  could  gather  them,  and remembering  that  they  would  have  their husks intact,  as  we  would have to  eat them  in nature)  Further,  eating  a tablespoon  of raw  flour  made  from  the  seeds  of any  cereal  grain  would  also produce  a gag response because  it  is  so  dry.  Thus,  even  though  most of the human race presently  consumes  grains  and  starches,  **we  can reject them  as  natural human  fare**.  The  fact that grass  seeds neither  attract,  tantalize, nor arouse us  in their raw natural state  should  amply  indicate  to you  that we were  not granivores  in  nature  before  we  mastered fire.
 
-#### Starchy Vegetables
+### Starchy Vegetables
 
 Starchy vegetables include peas, corn, potatoes, cassava, taro, water chestnuts, plantains, green bananas and lima beans.
 
 Animals  that  grub  for  roots  and  rubers  are  anatomically  designed  for  the  task:  they  have  snouts;  humans  do  not.  Without  tools,  humans  are  very  poor  diggers.  Further,  they  have  no  motivation  to  dig,  for  there  are  no  foods  below  ground  that,  in  their  natural  state,  please  the  palate,  and  **very  few  exist  that  our  digestive  systems   can   even   handle**. 
 
-#### Beans and Other Legumes
+### Beans and Other Legumes
 
 Beans and other legumes have the distinction of counting as both starchy foods and protein foods. These include lentils, kidney beans, black-eyed peas, chickpeas, black beans, white beans, pinto beans and any other types of dried beans.
 
