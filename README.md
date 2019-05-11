@@ -41,7 +41,7 @@ Very   few   creatures   other   than   birds   and   pigs   readily   consume  
 
 Invariably **when eating  legumes,  humans  get gassy,  an  indication  that  their digestive processes  have  been  compromised**. 
 
-<sub><sup>[source: Dr. Doug Graham - The 80/10/10 Diet]</sup></sub>
+<sub><sup>[source: _Dr. Doug Graham - The 80/10/10 Diet_]</sup></sub>
 
 ## Starches and digestion
 
@@ -63,10 +63,10 @@ Even  if we  can physically  chew  and  swallow  **starchy  carbohydrates,  they
 
 In  all  cases,  however,  **grains,  starchy  tubers,   and  legumes  create  nutritional,  digestive,  and  health  problems  for  those  who  eat  them.  Even  when  soaked  and  raw,  grains  are  acid  forming  in  a  body  that needs  to  be  slightly  alkaline**. 
  
- <sub><sup>[source: Dr. Doug Graham - The 80/10/10 Diet]</sup></sub>
+ <sub><sup>[source: _Dr. Doug Graham - The 80/10/10 Diet_]</sup></sub>
  
 ###### Bananas
 
 If you  have  a  hard  time  eating  very  many  bananas,  it  is  likely  they  are  not  at  peak  ripeness.  The  common  variety  of  banana,  the  cavendish,   is  ripe  when  it  is  generously  speckled  with  brown  spots  and  smells  sweet.  Prior  to  this  state,  they  contain  more  starch  and  are  harder  to  digest.
 
-<sub><sup>[source: Dr. Doug Graham - The 80/10/10 Diet]</sup></sub>
+<sub><sup>[source: _Dr. Doug Graham - The 80/10/10 Diet_]</sup></sub>
