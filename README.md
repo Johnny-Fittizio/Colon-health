@@ -51,3 +51,11 @@ In contrast, the human body produces salivary amylase (also  called  ptyalin) of
 Because cooked grains create a condition known as acid toxemia, people who adhere to starch/grain-based diets eventually fall victim to cancer, arthritis,  chronic fatigue, hypothyroidism, and a host of other health challenges. 
 
 Even  if we  can physically  chew  and  swallow  starchy  carbohydrates,  they  are very difficult   for  our  bodies   to   digest.   This   is   true   whether   they   are   eaten   raw,   soaked,   cooked,   processed,  or  refined.  We  do  not  have  the  digestive  enzymes  to  break  down  the  oligosaccharides  in  beans,  nor  the  polysaccharides  (cellulose  and  other  fibers)  in  grains  and  starchy  vegetables,  a  sure  sign  that they  are  not designed for  human  consumption.
+Biochemistry  tells  us  exactly  which  foods  we  can  and  cannot  digest,  and  therefore  what  foods we  should  eat.  
+
+ In  all  cases,  however,  grains,  starchy  tubers,   and  legumes  create  nutritional,  digestive,  and  health  problems  for  those  who  eat  them.  Even  when  soaked  and  raw,  grains  are  acid  forming  in  a  body  that needs  to  be  slightly  alkaline. 
+ 
+ 
+###### Bananas
+
+If you  have  a  hard  time  eating  very  many  bananas,  it  is  likely  they  are  not  at  peak  ripeness.  The  common  variety  of  banana,  the  cavendish,   is  ripe  when  it  is  generously  speckled  with  brown  spots  and  smells  sweet.  Prior  to  this  state,  they  contain  more  starch  and  are  harder  to  digest.
