@@ -8,6 +8,8 @@ The word "starch" is from a Germanic root with the meanings "_strong, stiff, str
 Starch or amylum is a polymeric carbohydrate consisting of a large number of glucose units joined by glycosidic bonds. 
 This **polysaccharide** is produced by most green plants as energy storage. It is the most common carbohydrate in human diets and is contained in large amounts in staple foods like potatoes, wheat, maize (corn), rice, and cassava.
 
+<sub><sup>combining the two tags</sup></sub>
+
 
 ## Starch food
 
