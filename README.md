@@ -1,7 +1,7 @@
 # Starches
 
 
-<span style="color:blue"> ## What is starch </span>
+## <span style="color:blue"> What is starch </span>
 
 The word "starch" is from a Germanic root with the meanings "_strong, stiff, strengthen, stiffen_". Modern German _Stärke_ (strength) is related. The Greek term for starch, "_amylon_" (_ἄμυλον_), is also related. 
 
