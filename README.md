@@ -1,8 +1,5 @@
-# Colon-health
+# Starches
 
-
-
-## Starches
 
 ### What is starch
 
